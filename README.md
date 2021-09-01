@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @DorotaMoe
+- 👀 I’m getting help for security reason by "Ghost7h" 
+- And I aka G7H7 give my utter thanks and respect to the GIT admins and Users helping me learn, understand and work with this great tool!
+- 🌱 Thank you for helping me with learning how to secure system and help others who might be in need
+- 💞️ I’m looking forward learning from all of you and again it is a great honor to be intruduced to the team...
+- 📫 krismoe82@gmail.com - ghost@vodou.no
